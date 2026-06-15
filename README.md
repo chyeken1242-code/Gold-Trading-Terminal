@@ -1,1 +1,0 @@
-# Gold-Trading-Terminal
